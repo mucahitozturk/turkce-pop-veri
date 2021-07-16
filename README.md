@@ -1,1 +1,0 @@
-# turkce-pop-veri
